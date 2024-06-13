@@ -5,8 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on becoming a software engineer.
-- 🌱 I’m currently learning frontend.
+
 - 👯 I’m looking to connect with other developers and professional engineers.
 - 💬 I'm enthusiastic about music, dogs, traveling, video games, puzzels, and learning!
 - 📫 How to reach me: LinkedIn - nwajones 
