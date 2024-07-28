@@ -10,4 +10,5 @@ Here are some ideas to get you started:
 - 💬 I'm enthusiastic about music, dogs, traveling, video games, puzzels, and learning!
 - 📫 How to reach me: LinkedIn - nwajones 
 - ⚡ Fun fact: Metal is one of my favorite types of music, so I learned to do metal screams about 8 years ago and have worked on perfecting them ever since!
+- Check out my YouTube channel: https://www.youtube.com/@_TechBanshee_ 
 -->
